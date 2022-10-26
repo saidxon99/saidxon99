@@ -1,7 +1,5 @@
-### Hi, I'm Saidkhon Kasimkhamov 👋
+### Hi, I'm Saidkhon Kasimkhanov 👋
 
-SMM/PROGRAMMER  <br>
-🔸️Saidkhon Kasimkhanov🙎‍♂️  <br>
 🔸️Student of <a href="https://uz.wikipedia.org/wiki/Toshkent_davlat_texnika_universiteti">TSTU👨‍🎓</a> <br>
 🔸️Programmer👨‍💻 <br>
 🔸️SMM manager👨‍🏫 <br>
